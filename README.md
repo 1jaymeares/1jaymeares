@@ -1,0 +1,1 @@
+Greetings. I am @1jaymeares. I am interested in art, architecture, interior design, basketball, sports, music, ceramics, fashion, and nature. I am currently studying psychology and art, and it has been a great experience. I would like to establish an artistic social club with like-minded individuals. If you are interested, please contact me at jaymeares@jbatiment.com.
